@@ -1,19 +1,3 @@
-github profile markdown generator logo
-GitHub Profile README Generator
-Star this repo
-22384
-Fork on GitHub
-7294
-
-back to edit
-
-copy-markdown
-
-download markdown
-
-download backup
-
-preview
 <h1 align="center">Hi 👋, I'm Kanak Dhiman</h1>
 <h3 align="center">A passionate frontend and backend developer from India</h3>
 
