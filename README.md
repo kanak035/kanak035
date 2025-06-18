@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **kanakdhiman3669@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1pTTm50RspCvjb6OdPCLFKyyylBpkQ6rz/view?usp=sharing]([https://drive.google.com/file/d/1pTTm50RspCvjb6OdPCLFKyyylBpkQ6rz/view?usp=sharing](https://drive.google.com/file/d/15vFkc5qGi-ZJphdwEBUyoAKyeiQoEvkF/view?usp=drive_link))
+- 📄 Know about my experiences ((https://drive.google.com/file/d/15vFkc5qGi-ZJphdwEBUyoAKyeiQoEvkF/view?usp=drive_link))
 
 - ⚡ Fun fact **I Think I Am Funny**
 
